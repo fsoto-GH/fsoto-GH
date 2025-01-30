@@ -16,5 +16,5 @@ In engineering terms, **my 2024 growth was O(2ⁿ)!** I plan to keep pushing bot
 
 ## 📬 Let's Connect!  
 - **Pronouns**: He/Him/His  
-- **Email**: [YourEmail@example.com]  
+- **Email**: [fjsoto1199@gmail.com](mailto:fjsoto1199@gmail.com)
 - **Fun Fact**: My 400-mile, 24-hour, Quad-State Bicycle Ride was my last ditch effort at completing a different challenge&mdash;American Century Week! I had done 3 back-to-back centuries,     and it rained on day 4. Instead of doing 2 200-mile rides, I opted to pull the bandage and do a 400-miler!
